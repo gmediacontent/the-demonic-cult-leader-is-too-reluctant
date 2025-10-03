@@ -1,1 +1,2 @@
-# the-demonic-cult-leader-is-too-reluctant
+# The Demonic Cult Leader Is Too Reluctant
+Le chef de la secte démoniaque est une entité redoutable qui effraie tout le monde. Cependant, alors que les membres de la secte s'attendent à une grande violence de sa part, le nouveau chef, Do Yu-gang, souhaite vivre une vie simple et paisible. Son modeste souhait sera-t-il finalement exaucé ?
